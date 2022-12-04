@@ -1,0 +1,1 @@
+# Medyum-okto-haf-zaya-ne-dersiniz
